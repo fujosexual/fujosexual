@@ -4,7 +4,7 @@
 
 ![](https://64.media.tumblr.com/f1a25e7d52cbbeae9c8f43249eaaea3c/27af65c5476596ba-94/s2048x3072/9eddf22e78047d04792453bfc74ac6b7671c839e.gifv)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=50&pause=1000&color=FFDDEC&width=750&lines=You+can+rely+on+me+as+much+as+you+want.;You+don't+have+to+feel+guilty.;I'm+just+glad+I+can+help+you...)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=50&pause=1000&color=761C4B&width=750&lines=...Are+you+some+kind+of+pushover%3F;Don't+you+think+I'm+just+a+beggar%3F;........)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=FFDDEC&width=750&lines=You+can+rely+on+me+as+much+as+you+want.;You+don't+have+to+feel+guilty.;I'm+just+glad+I+can+help+you...)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=50&pause=1000&color=761C4B&width=750&lines=...Are+you+some+kind+of+pushover%3F;Don't+you+think+I'm+just+a+beggar%3F;........)](https://git.io/typing-svg)
 
 
 ![](https://64.media.tumblr.com/8cee28fd9586a027d3edf28d4093ecb0/27af65c5476596ba-16/s2048x3072/a09a740ed0f62b38f4e3274670a3402f51fe19c7.gifv)

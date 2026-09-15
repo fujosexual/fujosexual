@@ -19,9 +19,9 @@ $\color{#fec9e3}{𝗷𝗼𝗼𝘀ㅤㅤ/ㅤㅤ 𝙟𝙤𝙤𝙨𝙗𝙤𝙘𝙠�
 
 $\color{#8f0040}{๑ㅤㅤ♡ㅤㅤsheㅤㅤtheyㅤㅤ…}$
 
-$\color{#fec9e3}{८ㅤㅤ lesbian
+$\color{#fec9e3}{८ㅤㅤ 
 ㅤ
-ㅤ  ㅤㅤ౨ৎㅤㅤ★}$
+ㅤ  ౨ৎㅤㅤ★}$
 
 $\color{#8f0040}{𝙢𝙞𝙣𝙤𝙧ㅤㅤ♡}$
 
@@ -39,7 +39,7 @@ $\color{#8f0040}{𝙢𝙞𝙣𝙤𝙧ㅤㅤ♡}$
 ㅤ
 ㅤ★
 ㅤ
-ㅤ[prns.page](https://en.pronouns.page/@larp07011)
+ㅤ[prns.page](https://en.pronouns.page/@lynae)
 
 ![](https://files.catbox.moe/dqrxtd.png)
 

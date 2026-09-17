@@ -31,7 +31,7 @@ $\color{#8f0040}{𝙢𝙞𝙣𝙤𝙧ㅤㅤ♡}$
 
 ![](https://64.media.tumblr.com/fc7278181baa8ace80cefcf95f58a368/27af65c5476596ba-08/s250x400/d043561ae1709ea29161c787a50a003543a87e44.pnj) ![](https://64.media.tumblr.com/7e1a6736a3a92777e4f345315087863f/27af65c5476596ba-fb/s250x400/d5a9735ff464ee17765be23cfe348604ccadd379.pnj) ![](https://64.media.tumblr.com/6e0b7117649c16eaf1b579edb95d8b19/27af65c5476596ba-a2/s250x400/d8a817a48f9fd031568ae1cf1b1938b62d3e4b2f.pnj)
 
-[rentry](https://rentry.co/pixelskies)
+[fluffle](https://fluffle.cc/fleetsnowfluff)
 ㅤ
 ㅤ★
 ㅤ
@@ -39,7 +39,7 @@ $\color{#8f0040}{𝙢𝙞𝙣𝙤𝙧ㅤㅤ♡}$
 ㅤ
 ㅤ★
 ㅤ
-ㅤ[prns.page](https://en.pronouns.page/@lynae)
+ㅤ[prns.cc](https://pronouns.cc/@aleph-1)
 
 ![](https://files.catbox.moe/dqrxtd.png)
 

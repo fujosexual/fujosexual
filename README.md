@@ -24,6 +24,6 @@
 　　   <img align="center" width="200" src="https://files.catbox.moe/wgwu0p.png">
 
 
-　　　extended　[^_- ☆](https://heartsteel.straw.page/) 
+　　　[info](https://heartsteel.straw.page)　extended　[^_- ☆](https://listography.com/nikishiina) 
      
 　　　　 $${\color{#fecb57}sign　my }$$　[新book](https://shiina.atabook.org) 

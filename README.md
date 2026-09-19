@@ -26,4 +26,4 @@
 
 　　　[info](https://heartsteel.straw.page)　extended　[^_- ☆](https://listography.com/nikishiina) 
      
-　　　　 $${\color{#fecb57}sign　my }$$　[新book](https://shiina.atabook.org) 
+　　　　 $${\color{#fecb57}sign}$$ 　 $${\color{#ba91ff}my}$$ 　[新book](https://shiina.atabook.org) 

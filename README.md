@@ -17,7 +17,7 @@
            
 
    　　　
-   CAT　[he](https://pronouns.cc/@shiina)　 $${\color{#ba91ff}∘ ∘ ∘ ( °ヮ° ) ?}$$
+   <strong>CAT<strong>　[he](https://pronouns.cc/@shiina)　 $${\color{#ba91ff}∘ ∘ ∘ ( °ヮ° ) ?}$$
      
 　　　　 $${\color{#fecb57}8teen}$$　audhd
 

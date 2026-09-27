@@ -1,1 +1,29 @@
-# -
+  <img align="left" width="300" src="https://i.ibb.co/ccSYyMXk/Untitled-design.png">
+  
+  </p>
+<p align="center">
+　 
+  </p>
+<p align="center">
+  
+  </p>
+<p align="center">
+  
+  </p>
+<p align="center">
+
+
+
+           
+
+   　　　
+   <strong>CAT<strong>　[he](https://pronouns.cc/@shiina)　 $${\color{#ba91ff}∘ ∘ ∘ ( °ヮ° ) ?}$$
+     
+　　　　 $${\color{#fecb57}8teen}$$　audhd
+
+　　   <img align="center" width="200" src="https://files.catbox.moe/wgwu0p.png">
+
+
+　　　[strawpage](https://heartsteel.straw.page)　^_- ☆　[listo](https://listography.com/nikishiina) 
+     
+　　　 $${\color{#fecb57}sign}$$ 　 $${\color{#ba91ff}my}$$ 　[新book](https://shiina.atabook.org) 

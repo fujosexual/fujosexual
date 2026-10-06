@@ -23,7 +23,7 @@
            
 
    　　　
-　<strong>CAT<strong>　[he](https://pronouns.cc/@shiina) $${\color{#de2828}2008}$$ 
+　<strong>CAT<strong>　[he](https://pronouns.cc/@shiina)　 $${\color{#de2828}2008}$$ 
 
    　　　   $${\color{#5944ab}no　dni}$$ 　-16iwc 　
 

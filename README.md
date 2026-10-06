@@ -31,5 +31,7 @@
 
 
 　　　[rentry](https://rentry.co/jockvans)　^_- ☆　[listo](https://listography.com/nikishiina) 
+   
+   　　　   $${\color{#5944ab}no　dni}$$ 　-16iwc 　
      
-　　　 $${\color{#de2828}sign}$$ 　 $${\color{#5944ab}my}$$ 　[新book](https://shiina.atabook.org) 
+　　　 $${\color{#de2828}sign}$$ 　 my 　[新book](https://shiina.atabook.org) 
